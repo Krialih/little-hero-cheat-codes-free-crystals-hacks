@@ -1,2 +1,5 @@
-# little-hero-cheat-codes-free-crystals-hacks
-Little Hero Cheats and Codes for unlimited free crystals hacks guide ios android
+# Little Hero Cheats and Codes for unlimited free crystals hacks guide ios android
+
+Little Hero Cheats and Codes for unlimited free crystals hacks guide ios android - The heroes in little hero are either ordinary (b), legendary (a) or mythical in rarity (s, S +), the higher the rarity, in most cases, it means better statistics and better skills. The rarity of heroes also determines the opportunity to improve and the upper limit of the highest level. Although it is very challenging to protect S-level and S + level heroes, these heroes will certainly stay in your team for the longest time. Naturally, you must accept A-level heroes at an early stage, but once Once you get better level B heroes and don't invest resources in them, you can eliminate them. Each hero has its own unique skills and attributes, but these characteristics are usually related to their class or role in battle. There are currently five different hero characters in little hero: Warrior, mage, Ranger, predator, healer or support unit. Considering the overall strength and limitations of each class, Little Hero Idle RPG cheat code is very important for building a team.
+
+<a href="https://windmod.icu/little-hero/">check here</a>
